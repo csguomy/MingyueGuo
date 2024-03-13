@@ -1,1 +1,1 @@
-#### [HomePage of Mingyue Guo](https://csguomy.github.io/MingyueGuo/edit/V2/).
+#### [HomePage of Mingyue Guo](https://csguomy.github.io/MingyueGuo/).
